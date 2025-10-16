@@ -1,0 +1,2 @@
+# Lenovo_LOQ_Essential_15ARP10_GDN_728x90_v2_2
+Lenovo_LOQ_Essential_15ARP10_GDN_728x90_v2_2
